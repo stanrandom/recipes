@@ -15,7 +15,7 @@
 1. If the butter is still hard (fridge-cold), chop it into smaller pieces and give it 30s in a microwave.
 2. Beat the butter and the sugar together in a bowl until smooth. Hand blender works well for this bit, but getting the mixture off the beaters can be ... fun. (You can do this in a food processor if your butter is a bit cold.)
 1. Stir in the flour until thoroughly combined. (If you are using a food processor, you can add the flour in this way.) Turn onto a clean work surface and knead the dough just enough to bring the mixture together in to a smooth ball of dough. Not too smooth. It should still be crumbly.
-1. Use a floured rolling pin to gently roll out until the dough is 1cm/½in thick.
+1. Use a floured rolling pin to gently roll out until the dough is 1cm thick.
 1. Cut into shortbread rounds or fingers and place onto a baking tray lined with baking paper. Use a fork tips to make holes in the top of each biscuit. Sprinkle with caster sugar (use a sieve to ensure even dusting) and chill in the fridge for 20 minutes.
 1. Preheat the oven to 190C/170C fan.
 1. Bake in the oven for 15–20 minutes, or until pale golden-brown. Set aside to cool on a wire rack.
