@@ -62,3 +62,8 @@
 > **How do you know when shortbread is ready?**
 > 
 > It will be a pale golden-brown colour.
+
+---
+
+Originally from https://www.bbc.co.uk/food/recipes/shortbread_1290
+
