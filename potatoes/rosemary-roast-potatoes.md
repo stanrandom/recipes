@@ -1,7 +1,7 @@
 # Rosemary roast potatoes. 
 
-Two potatoes each
-2.5g fresh rosemary each
+- Two potatoes each
+- 2.5g fresh rosemary each
 
 Preheat the oven to 220C/200C (fan)/gas 7 and boil a full kettle. 
 
