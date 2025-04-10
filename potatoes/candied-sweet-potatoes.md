@@ -1,4 +1,4 @@
-#candied sweet potato
+# candied sweet potato
 
 chop uour sweet potataoes (skins on) into large, bite-sized pieces and add to a non-stick baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and putvtye tray in the oven dor an initial 25 min or intil starting to crisp. 
 
