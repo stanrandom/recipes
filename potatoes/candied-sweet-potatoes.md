@@ -1,21 +1,15 @@
-# candied sweet potato
+# Candied sweet potato
 
-chop uour sweet potataoes (skins on) into large, bite-sized pieces and add to a non-stick baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and putvtye tray in the oven dor an initial 25 min or intil starting to crisp. 
+Chop your sweet potataoes (skins on) into large, bite-sized pieces and add to a non-stick baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and put the tray in the oven for an initial 25 min or until starting to crisp. 
 
-conine tiur mayk with a ponch of salt and asmall splash of your tice vinegsr in a biwl - this is yiur japanese-srtoe mayo. 
-
-
+Combine your mayo with a pinch of salt and a small splash of your rice vinegsr in a bowl - this is your Japanese-style mayo. 
 
 
 
+Remofe the tray from the oven and drizzle the remaining honey and black sesame seeds over the roasted sweet potato - this is your candied sweet potato. 
 
+Return the tray to the oven for 8 min further or until they are caramelised. 
 
-once yhe chicke has had 10-12 kin, remofe the tray from the ocen ane b
+Drizzle the Japanese-style mayo over the sweet potato and garnish with the sliced spring onion. 
 
-drizzle the remaining hkney and black sesame seeds over the roatsed sweet pottao- rhisnis your candied sweet potato. 
-
-teturn the tray to the oven for 8 min firtehr or yntik they are caranelised. 
-
-drizzle teb japanese-style mayo over the sweet potsto and fsrnish with the sliced soring onion. 
-
-enjoy!
+Enjoy!
