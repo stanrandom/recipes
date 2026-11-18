@@ -1,5 +1,16 @@
 # easy bolognese
 
+## ingredients
+
+All measurements are per serving. 
+
+- pasta (75g)
+- canned chopped tomato (200g)
+- passata (250g)
+- pork mince (250g)
+
+## method
+
 Combine the tomato passata and tinned tomatoes into a pan with green herbs and spices (TBD) and pepper, and simmer.
 
 Cook the pasta as per the packet's instructions, but add oil to the pot for cooking because it makes it nice.
