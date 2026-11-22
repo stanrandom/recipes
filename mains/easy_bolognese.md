@@ -9,6 +9,12 @@ All measurements are per serving.
 - passata (250g)
 - pork mince (250g)
 
+- italian style seasoning 
+- birds eye chilli flakes
+- ground black pepper
+- oregano
+- garlic granules
+
 ## method
 
 Combine the tomato passata and tinned tomatoes into a pan with green herbs and spices (TBD) and pepper, and simmer.
